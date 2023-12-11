@@ -1,4 +1,4 @@
-# Hello, I'm Iam Mbai
+# Hello, I'm Ian Mbai
 
 ## About Me
 
